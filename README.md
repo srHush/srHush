@@ -14,7 +14,7 @@
  
 <br>
  
-### Me add no Discord ^^
+### Me add no Discord :)
  
 <div>  
  <img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a> sr.hush
